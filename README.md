@@ -12,3 +12,5 @@ Sean OReilly
 Jacob Allison
 RENEE ERNST
 Jackie Nguyen
+James Scott
+Chris Lynam
