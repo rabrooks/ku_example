@@ -11,6 +11,8 @@ kathryn allen
 Sean OReilly
 Jacob Allison
 RENEE ERNST
+Chanel Maddox
 Jackie Nguyen
 James Scott
 Chris Lynam
+
